@@ -1,0 +1,2 @@
+# manijangala-github.io
+college
